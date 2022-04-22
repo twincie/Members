@@ -2,4 +2,5 @@
 
 - Jome Favourite
 - Oyebode Johnson
-- Oluwaseun 
+- Ejiwale David
+- Oluwaseun Amore
